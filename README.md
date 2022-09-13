@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Annashuvarina29
+- 👀 I’m interested in PcVue
+- 🌱 I’m currently learning Visual Basic
